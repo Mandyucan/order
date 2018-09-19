@@ -1,1 +1,2 @@
-still waste time
+still waste time 
+a blue day
